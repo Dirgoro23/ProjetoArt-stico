@@ -1,1 +1,1 @@
-# ProjetoArt-stico
+# ProjetoArtistico
